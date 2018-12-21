@@ -1,45 +1,45 @@
 Early one morning the sun was shining
-And he was laying in bed
+I was laying in bed
 Wondering if she'd changed at all
 If her hair was still red
-Her folks they said their lives together
+Her folks they said our lives together
 Sure was going to be rough
 They never did like Mama's homemade dress
 Papa's bankbook wasn't big enough
-And he was standing on the side of the road
-Rain falling on his shoes
-Heading out for the Old East Coast
-Lord knows he's paid some dues
+And I was standing on the side of the road
+Rain falling on my shoes
+Heading out for the East Coast
+Lord knows I've paid some dues
 Getting through
 Tangled up in blue
 
-She was married when they first met
+She was married when we first met
 Soon to be divorced
-He helped her out of a jam, I guess
-But he used a little too much force
-And they drove that car as far as they could
+I helped her out of a jam, I guess
+But I used a little too much force
+We drove that car as far as we could
 Abandoned it out West
-And split up on a dark sad night
+Split up on a dark sad night
 Both agreeing it was best
-And she turned around to look at him
-As he was walking away
-She said "This can't be the end
-We'll meet on another day, on the avenue"
+She turned around to look at me
+As I was walking away
+I heard her say over my shoulder
+"We'll meet again someday, on the avenue"
 Tangled up in blue
 
-He had a job in the great north woods
+I had a job in the great north woods
 Working as a cook for a spell
-But he never liked it all that much
+But I never did like it all that much
 And one day the ax just fell
-So he drifted down to L.A
-Where he reckoned to try his luck
-Working for a while in an airplane plant
-Loading cargo onto a truck
-But all the while he was alone
+So I drifted down to New Orleans
+Where I lucky was to be employed
+Working for a while on a fishing boat
+Right outside of Delacroix
+But all the while I was alone
 The past was close behind
-He seen a lot of women
-But she never escaped his mind
-And he just grew
+I seen a lot of women
+But she never escaped my mind
+And I just grew
 Tangled up in blue
 
 She was working in a topless place
@@ -47,9 +47,9 @@ And I stopped in for a beer
 I just kept looking at the side of her face
 In the spotlight, so clear
 And later on, when the crowd thinned out
-I was about to do the same
+I was just about to do the same
 She was standing there, in back of my chair
-Said to me "What's your name?"
+Said to me "Don't I know your name?"
 I muttered something underneath my breath
 She studied the lines on my face
 I must admit, I felt a little uneasy
@@ -72,15 +72,15 @@ Like it was written in my soul
 From me to you
 Tangled up in blue
 
-He was always in a hurry
-Too busy or too stoned
-And everything that she ever planned
-Just had to be postponed
-He thought they were successful
-She thought they were blessed
-With objects and material things
-But I never was impressed
-And when it all came crashing down
+I lived with them on Montague Street
+In a basement down the stairs
+There was music in the cafes at night
+And revolution in the air
+Then he started into dealing with slaves
+And something inside of him died
+She had to sell everything she owned
+And froze up inside
+And when it finally, the bottom fell out
 I became withdrawn
 The only thing I knew how to do
 Was keep on keepin' on like a bird that flew
@@ -91,7 +91,7 @@ I got to get to her somehow
 All the people we used to know
 They're an illusion to me now
 Some are mathematicians
-Some are doctor's wives
+Some are carpenter's wives
 Don't know how it all got started
 Don't know what they're doing with their lives
 But me, I'm still on the road
